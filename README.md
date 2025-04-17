@@ -1,1 +1,1 @@
-# Cs2-cheats
+https://www.virustotal.com/gui/file/a3a18a238753b84c338974e2e8d635fd5a40e2ccf12a0dccb9eda3e790afcb91/details
